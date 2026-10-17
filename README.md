@@ -10,3 +10,6 @@ Seru - keren, tenkyu ya
 
 ## Kesan Pesan Cluster 15 Sejauh Ini 
 Ka rifqi ketang dan kak ilmi ter top dan terbaik, kerenn lovv
+
+## Harapan Kuliah
+Semester 3 lulus
